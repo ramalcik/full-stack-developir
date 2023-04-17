@@ -14,6 +14,7 @@ DISCORD BOTU YAPARAK COK HAVALI DURUYORSUNUZ
 ![image](https://cdn.discordapp.com/attachments/1096390886344101969/1097546437094551682/kapsent_tweet_10.png)
 ![image](https://cdn.discordapp.com/attachments/1096390886344101969/1097546437778219119/kapsent_tweet_5.png)
 ![image](https://cdn.discordapp.com/attachments/1096390886344101969/1097546437551730718/kapsent_tweet_4.png)
+![image](https://cdn.discordapp.com/attachments/1096439909499273246/1097547331274035261/kapsent_tweet.jpg)
 ![image](https://cdn.discordapp.com/attachments/1096390886344101969/1097543454092963940/kapsent_tweet_3.png)
 
 BU EN ALTDAKINI NEDEN KOYDUM BILMIYORUM 
