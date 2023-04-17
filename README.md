@@ -1,1 +1,1 @@
-# full-stack-developir
+# full-stack-developirlar
